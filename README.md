@@ -1,2 +1,3 @@
-# BDTPOINT
-1XBET OFFICIAL BANGLADESH MANAGER BDT &amp; USD
+MOBILE SHOP
+Company owner sahinur rahman
+Satkhira Bangladesh 9400
